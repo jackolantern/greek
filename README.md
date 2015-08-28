@@ -1,5 +1,5 @@
 I have been learning ancient Greek.
-Originally I jut wanted to read Marcus Aurelius,
+Originally I just wanted to read Marcus Aurelius,
 but now I am just translating everything I can get my hands on.
 
 Every morning I do a few lines of one of the Homeric Hymns.
